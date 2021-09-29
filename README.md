@@ -5,7 +5,7 @@
 </div>
 
 
-## Follow on Twitter - Click [Twitter Bot](https://twitter.com/socialactivisto)
+## Follow on Twitter - Click [Twitter Bot](https://twitter.com/socialactivistism)
 
 ### :star: Star us on GitHub — it helps!
 
